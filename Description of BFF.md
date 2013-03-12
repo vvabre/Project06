@@ -8,4 +8,4 @@ Thanks to GLOCAL communities of foodies,
 people are able to see and taste 
 how to transform about-to-be wasted food 
 into something delicious!!!
-Yam Yam Yam!!
+Yum Yum Yum!!
